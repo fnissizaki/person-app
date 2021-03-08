@@ -12,3 +12,4 @@ As dúvidas podem ser enviadas a qualquer momento para o recrutador.
 
 O prazo para a entrega do projeto é de 1 semana a contar da notificação.
 
+a
